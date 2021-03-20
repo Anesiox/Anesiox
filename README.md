@@ -1,3 +1,5 @@
+                  𝑸𝒖𝒊 𝒋𝒆 𝒔𝒖𝒊𝒔 ?
+
 - 👋 Salut, Je suis Anesiox..
 - 👀 Je me spécialise surtout dans le js, mais aussi le python, le c#, l'html et le cracking..
 - 🌱 Je suis un jeune developpeur..
