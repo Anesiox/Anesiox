@@ -4,7 +4,7 @@
 - 👀 Je me spécialise surtout dans le js, mais aussi le python, le c#, l'html et le cracking..
 - 🌱 Je suis un jeune developpeur..
 - 💞️ https://zeosbot.ml/
-- 📫 Pour me contacter via Discord : Anesiox#8634
+- 📫 Pour me contacter via Discord : Anesiox#0001
 
               𝑴𝒆𝒔 𝒄𝒓𝒆́𝒂𝒕𝒊𝒐𝒏𝒔 𝒑𝒓𝒊𝒏𝒄𝒊𝒑𝒂𝒍e𝒔 :
               
